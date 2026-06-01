@@ -1,14 +1,14 @@
 
-<img width="420" height="30" alt="tumblr_ecb6a49fbc7f117398be43758a50da97_38446cc1_400" src="https://github.com/user-attachments/assets/2c424318-dfe6-4aae-abd2-5ca020882d03" />
-<img width="420" height="30" alt="tumblr_0cc802b77eee71a9bf4c450c0ee39175_d71291fc_400" src="https://github.com/user-attachments/assets/5211d51a-427e-4732-9bd3-bbdfb26bbaff" />  
+<img width="420" height="30" alt="tumblr_d3f2a23e1c55a5ecc7f6efd57cc835e6_b27973c6_400-ezgif com-resize" src="https://github.com/user-attachments/assets/5ae98fb6-01fe-4b37-8864-5fff72b99466" />
+<img width="420" height="30" alt="tumblr_310d1ee3d882c248ca7f9661d0446482_92442f86_400-ezgif com-crop" src="https://github.com/user-attachments/assets/3f5a16d1-cad4-4262-a37a-434a279ed8be" />  
 
-<img width="208" height="106" alt="tumblr_fecef89787ffa2318de7443e337c8b3c_ed17c6dc_400" src="https://github.com/user-attachments/assets/425f6e55-8bac-4500-8267-f6054d19cbac" />
-<img width="208" height="106" alt="tumblr_75011e0a292bc5bb08936bef7364b0c6_776dd390_400" src="https://github.com/user-attachments/assets/4c30b9ee-0e3b-487c-bcce-57df2e93a9d8" />
-<img width="208" height="106" alt="tumblr_6ad5cc3d4c1134811e634ccfa7278c92_4e3b2233_250" src="https://github.com/user-attachments/assets/409cdb47-57af-49fc-9ea7-1d354f5f7936" />
-<img width="208" height="106" alt="tumblr_1775ff9a94e0073af1208e5a89676526_6384c603_250 (1)" src="https://github.com/user-attachments/assets/99ca75cb-9d98-4dc5-be0c-d8d4dc918407" />  
+<img width="208" height="106" alt="tumblr_b908010cb016904af3cc34aaecf705d5_851bcea2_250-ezgif com-resize" src="https://github.com/user-attachments/assets/e4ead659-2593-4142-8823-aeb5a9013d2f" />
+<img width="208" height="106" alt="tumblr_f26acb11b33a5e455d3689afa18a210d_2738c2f0_250-ezgif com-resize" src="https://github.com/user-attachments/assets/aabe88af-45b3-4164-9fa5-021aeb6f9059" />
+<img width="208" height="106" alt="tumblr_9b787e758d15e980a104c79463e3f582_f643252b_400-ezgif com-resize" src="https://github.com/user-attachments/assets/cec354f1-c2d2-441e-a2ac-a87a27a3e25e" />
+<img width="208" height="106" alt="tumblr_de7930740cdb2b481f7205d9dd54e72d_0e85ccb8_250-ezgif com-resize" src="https://github.com/user-attachments/assets/6d28ef41-2684-479b-aa3f-7bdb03e85f3b" />  
 
-<img width="420" height="30" alt="tumblr_63f2435a4e82de7e1d2c2cc48569fcf4_57362cce_400" src="https://github.com/user-attachments/assets/d147b038-89df-46ed-9ce5-626c5a59283a" />
-<img width="420" height="30" alt="tumblr_2e3b8b90d75a44aeaefdfebae0dab1b4_0629da4a_400" src="https://github.com/user-attachments/assets/7aac0cc4-73f2-4be6-b906-b66c96a58cf5" />
+<img width="420" height="30" alt="tumblr_19f4017a397ca44e1f180ff1d35997e5_c9dd4468_400-ezgif com-resize" src="https://github.com/user-attachments/assets/73ed2228-a66a-4180-8b4b-a30a5120ef6b" />
+<img width="420" height="30" alt="tumblr_259925c191309cf638dc8cbb73cc0461_520e49e7_400-ezgif com-crop" src="https://github.com/user-attachments/assets/472740ee-098b-40c2-b0c1-c3e48d1ce632" />
 
 
 <br> <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0"> </br>
@@ -53,23 +53,23 @@
 
 ![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)![purple-neon](https://files.catbox.moe/xmti1d.gif)
 
-<br> <img width="400" height="40" alt="tumblr_b1e17db0c2fabc65768972ab36b0618d_e24f1fb9_400-ezgif com-crop" src="https://github.com/user-attachments/assets/d849e6eb-5762-4290-b01c-4663a337ad4c" /> </br>
+<br> <img width="400" height="40" alt="tumblr_0a5ff93c92d2b68b49e54964cb5ce20e_42715541_250-ezgif com-crop (1)" src="https://github.com/user-attachments/assets/4f3ca3c7-6236-49a6-a7cd-7ad82123af1f" /> </br>
 
-<img width="399" height="129" alt="tumblr_0c913e5b2cc5ddbeabee149a33526052_4ea62a32_540-ezgif com-added-text (1)" src="https://github.com/user-attachments/assets/d29264b2-4c3d-4cb9-89dd-a9dc33e5376e" />
+<img width="399" height="129" alt="tumblr_ov4j34xkGh1qeyb9ho2_400-ezgif com-crop" src="https://github.com/user-attachments/assets/22571f6a-eb7a-4c8c-8d48-00cd8ad92dd0" />
 
-<br> <img width="400" height="40" alt="tumblr_203f9d1cd174538f28a0285d090d9145_4c365c55_400-ezgif com-crop" src="https://github.com/user-attachments/assets/13e0a20b-7de3-4b59-87e6-4837a2a68711" /> </br>
+<br> <img width="400" height="40" alt="tumblr_a53755a8a76b4029b1eea847a04eb03d_3b88b65a_250-ezgif com-crop (1)" src="https://github.com/user-attachments/assets/a92a8cb0-af73-4496-b2b7-4f329d5d5189" /> </br>
 
-<br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=800&size=13&duration=4000&pause=1000&color=FA881E&width=339&height=33&lines=%22Words+of+encouragement.%22;%22You+can't+just+say+%22words+of+encouragement!%22;%22Words+of+GREAT+encouragement!%22" alt="Typing SVG" /></a> </br>
+<br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Noto+Serif&weight=800&size=13&letterSpacing=0.1em&pause=1000&color=00FF08&width=485&lines=%E2%80%9CYour+boos+mean+nothing!!+-+I%E2%80%99ve+seen+what+makes+you+cheer!%E2%80%9D+" alt="Typing SVG" /></a> </br>
 
-<br> <img width="400" height="248" alt="tumblr_2ff6aca68e999282cb6b3b09f5845956_87dd18b3_400" src="https://github.com/user-attachments/assets/28d4fcd0-7bca-4fce-a3cb-ec28947f6672" /> </br>
+<br> <img width="300" height="300" alt="HJtMyhGWwAInLCG-ezgif com-resize" src="https://github.com/user-attachments/assets/2251f782-c119-4aff-8ca7-a6f75c7952c6" /> </br>
 
-<br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=800&size=13&duration=4000&pause=1000&color=FA881E&width=320&height=33&lines=%22Who+is+grace+talking+to%2C+question%3F%22" alt="Typing SVG" /></a> </br>
+<br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Noto+Serif&weight=800&size=14&letterSpacing=0.1em&duration=5002&pause=1000&color=00FF08&width=608&lines=%22Every+breath+I+take+without+your+permission+boost+my+self+esteem!%22" alt="Typing SVG" /></a> </br>
 
-<br> <img width="400" height="40" alt="tumblr_0a415a5bfccce8a62218eb970e8f184d_f6a314e4_540-ezgif com-crop" src="https://github.com/user-attachments/assets/a2c176f2-7402-4bee-86e1-0f6df2704db1" /> </br>
+<br> <img width="400" height="40" alt="tumblr_b58fe8d7097f24726d78d7206cd4688c_3d236cc2_250-ezgif com-resize" src="https://github.com/user-attachments/assets/a376f0fa-5dbe-46a6-916f-30581da9ab51" /> </br>
 
-<img width="399" height="129" alt="project-hail-mary-ryland-grace-ezgif com-crop (2)" src="https://github.com/user-attachments/assets/7fe9dccb-1499-447c-8d64-e6bdd79a704a" />
+<img width="399" height="129" alt="tumblr_ov4j34xkGh1qeyb9ho1_400-ezgif com-crop" src="https://github.com/user-attachments/assets/759f7ac2-dc7f-4117-b975-2a04a4f33844" />
 
-<br> <img width="400" height="40" alt="tumblr_de388d43dee3c9775af5b40bd5903988_bcc88de5_540-ezgif com-crop" src="https://github.com/user-attachments/assets/2ebf2465-2c90-4e7c-a0ea-0e124cd96296" /> </br>
+<br> <img width="400" height="40" alt="tumblr_ca5c06b9c886ce5349042614aa7120f4_68a663e2_400-ezgif com-crop" src="https://github.com/user-attachments/assets/21758e0b-729e-4693-bcc0-50e82e5df472" /> </br>
 
 
 
