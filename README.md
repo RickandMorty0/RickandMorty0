@@ -206,7 +206,9 @@ drawn by: [prince/mars](https://github.com/ph1lz4)
 *`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`*
 ### ***ALL*** Valentino/ROTTMNT stamps below by me FTU wth CREDIT {lnk git}
 
-<br> <img width="246" height="155" alt="ezgif com-crop" src="https://github.com/user-attachments/assets/50a72019-5e17-4ce0-af47-1abf7137661c" /> </br>
+<br> <img width="246" height="155" alt="ezgif com-crop" src="https://github.com/user-attachments/assets/50a72019-5e17-4ce0-af47-1abf7137661c" />
+<img width="246" height="155" alt="ezgif com-crop (1)" src="https://github.com/user-attachments/assets/8099905b-da48-48fa-a5a9-c788e2e0c654" />
+<img width="246" height="155" alt="ezgif com-crop (2)" src="https://github.com/user-attachments/assets/73c1ecbc-fcb2-400b-8f8a-591868e4debe" /> </br>
 
 ![val1-ezgif com-crop](https://github.com/user-attachments/assets/ffec7b74-2657-44cb-b616-7a677befcce0)
 ![val2-ezgif com-crop](https://github.com/user-attachments/assets/fe667b82-1553-46d0-9c74-6101596485aa)
@@ -275,6 +277,9 @@ drawn by: [prince/mars](https://github.com/ph1lz4)
 
  **<a href="https://ibb.co/xKLXnbm7"><img src="https://i.ibb.co/vCqVNWsj/dividers.webp" alt="dividers" border="0"></a>**
 
+<img width="99" height="55" alt="tumblr_be50ef1a2cc5c3c01c4adb26493170a5_53b59bd8_100" src="https://github.com/user-attachments/assets/bd071593-603f-4fd0-8e42-b25d790508c9" />
+<img width="99" height="55" alt="tumblr_fc0c7954c7bd201aaa6592d696d749a6_38f1ca10_100" src="https://github.com/user-attachments/assets/441ec637-7921-45d2-92a8-617986bd8751" />
+<img width="99" height="55" alt="tumblr_690ab98d3768e2b24f9ed3d285c463cd_7fb206f8_100" src="https://github.com/user-attachments/assets/3c34373e-76d6-445d-8a78-9fe24dfd1fc5" />
 <img src="https://i.ibb.co/Kzmkw7vN/68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d.png" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d" border="0">
 <img src="https://i.ibb.co/yFBGK7xg/apagenderstamp.jpg" alt="apagenderstamp" border="0">
 <img src="https://i.ibb.co/hRrQ7Dzy/aroacefluxstamp.jpg" alt="aroacefluxstamp" border="0">
